@@ -1,0 +1,2 @@
+# nigga
+twój stary pijany
